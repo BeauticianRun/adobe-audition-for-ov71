@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Audition for macOS overlay with advanced Adobe Audition for macOS Overlay | social-media-export + multi-cam-editing. Featuring social-media-export and
 
 
 
